@@ -1,3 +1,7 @@
-You know there isn't any way out - everything's just as all of you wished - you just don't like it
+H.2 Post:
 
-Don't talk to me, not at the mood; or you wanna suffer immortally
+https://www.twitter.com/tbohermes
+https://www.instagram.com/tbohermes
+https://www.facebook.com/tbohermes
+https://www.github.com/tbohermes
+https://www.linkedin.com/in/tbohermes/
